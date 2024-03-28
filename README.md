@@ -1,1 +1,1 @@
-# Lista 4 de atividades PSC aula prátiva
+# Lista 4 de atividades PSC aula prática
